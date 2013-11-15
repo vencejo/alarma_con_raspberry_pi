@@ -31,4 +31,4 @@ Gracias a Dani y Sami por su colaboracion
 Video
 -----
 
-[video](www.youtube.com/watch?v=nDh1pvse6x0)
+[video](https://www.youtube.com/watch?v=nDh1pvse6x0)
